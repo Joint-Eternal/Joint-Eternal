@@ -1,4 +1,4 @@
-# Joint Eternal Review: A Deep Dive into its Ingredients and Usage
+# Joint Eternal Reviews: A Deep Dive into its Ingredients and Usage
 
 Living with joint pain feels like being trapped in your own body I know because I've been there. 
 
